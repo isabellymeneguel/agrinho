@@ -1,0 +1,1 @@
+Este projeto foi desenvolvido para participar do Concurso Agrinho 2025, pela aluna Isabelly Meneguel, do 2° ano do Ensino Medio do Colégio Estadual João Cionek, Santa Maria do Oeste-PR, com objetivo de apresentar a importância do campo na produção de alimentos e na preservação do recursos naturais, e valorizar as conexões Campo-Cidade.
